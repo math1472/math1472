@@ -12,4 +12,4 @@
 - 00001083400356sp@al.educacao.sp.gov.br
 
 
-![](https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8)
+![](https://media1.tenor.com/m/TsYfxEw0ndsAAAAC/reversed-gif-pikachu.gif)
