@@ -10,4 +10,6 @@
 - Pode me pedir ajuda, vou adorar ajudar!
 - Entre em contato comigo por email 
 - 00001083400356sp@al.educacao.sp.gov.br
-![](https://tenor.com/pt-BR/view/pikachu-in-ashs-bag-pikachu-sleeping-in-ashs-bag-pop-out-pikachu-pikachu-pika-pika-gif-26545318)
+
+
+![]( https://tenor.com/pt-BR/view/pikachu-in-ashs-bag-pikachu-sleeping-in-ashs-bag-pop-out-pikachu-pikachu-pika-pika-gif-26545318)
